@@ -1,7 +1,7 @@
 
 ***
 
-# 2024, Friday, October 5th - Didn't play
+# 2024, Friday, October 4th - Didn't play
 
 I didn't play AdVenture Communist today. Today was not a scheduled day to play.
 
